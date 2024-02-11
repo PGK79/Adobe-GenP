@@ -1,3 +1,5 @@
+https://dzen.ru/a/ZZkIoR87oE4WJYNC
+
 # Adobe-GenP
 Adobe CC 2019/2020/2021/2022/2023 GenP Universal Patch 3.0
 December 25, 2022 - Software
